@@ -1,3 +1,5 @@
+Video link - https://youtu.be/xhFz3KugXd0
+
 Website link - https://buzz2daytech.blogspot.com/2022/04/activate-office-2021-using-cmd.html
 
 
